@@ -10,3 +10,4 @@ Meu nome é Vinicius Moreira Lopes
 
   vinicius.moreira.lopes@escola.pr.gov.br
   
+<div class="tenor-gif-embed" data-postid="18574072" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/among-us-hands-up-pet-crew-mate-pet-the-crewmate-gif-18574072">Among Us Hands Up Sticker</a>from <a href="https://tenor.com/search/among+us-stickers">Among Us Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
