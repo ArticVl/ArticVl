@@ -10,4 +10,4 @@ Meu nome é Vinicius Moreira Lopes
 
   vinicius.moreira.lopes@escola.pr.gov.br
   
-![](https://media.tenor.com/Dsz-E_RstOUAAAAi/%D1%8D%D0%BF%D0%B4-%D1%8D%D0%BF%D0%BB.gif)
+![](https://media.tenor.com/icQjKrTEeEsAAAAC/among-us-twerk-twerk.gif)
